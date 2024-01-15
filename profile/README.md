@@ -1,2 +1,1 @@
-we mine diamonds all night
-
+![Synx Games](https://i.imgur.com/qINPMDM.jpg)
